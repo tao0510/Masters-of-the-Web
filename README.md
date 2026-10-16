@@ -4,6 +4,6 @@ Write your plans and roles here
 Catalina - 
 Misha - 
 Gabe - 
-Kolin - su
+Kolin - 
 Lucos -
 Wayne -
